@@ -1,1 +1,1 @@
-bima tampan
+bima tampan sekali
